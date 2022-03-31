@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @paolo-cargnin
-- 👀 I don't like to tal about me, 
+- 👀 I don't like to talk about me, 
 - 🌱 But I really like this icons and Github
 - 💞️ So I'll keep them here for the moment.
 - 📫 How to reach me ... Well you can try twitter.
